@@ -50,6 +50,9 @@
 ![fourbar1](https://github.com/user-attachments/assets/42b6252e-cc45-4259-8562-575ea8c35c16)
 
 ## Output:
+![WhatsApp Image 2024-12-23 at 13 02 18_07cdd468](https://github.com/user-attachments/assets/42469b54-6ef2-4030-a542-fc8b88708f79)
+![WhatsApp Image 2024-12-23 at 13 02 19_13488b5c](https://github.com/user-attachments/assets/d5a2ee48-5230-4d0f-a6a4-33ac9832b920)
+![WhatsApp Image 2024-12-23 at 13 02 19_2f558e3d](https://github.com/user-attachments/assets/a9f05870-fef1-498b-917c-66ed7e2c5a50)
 
 
 ### Name:Pothu Sumanth
